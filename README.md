@@ -1,4 +1,5 @@
-![изображение](https://github.com/abormrm17/grodjkil/assets/121940091/7db22d3d-0215-4ea2-9ce4-a09ebc60c31c)
+![Screenshot_1](https://github.com/abormrm17/grodjkil/assets/121940091/5cfbce9e-0ace-434a-b8e7-736cddd544ce)
+
 
 PASSWORD228882
 
